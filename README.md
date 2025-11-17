@@ -1,2 +1,2 @@
 # Projects
-Check out my projects here !
+Check out my projects !
